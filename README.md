@@ -15,6 +15,8 @@ ___________________________________________________
  * Replace the word “failing” with the word “learning.” 
  * Portray criticism as positive
  ____________________________________________________________
+ 
+ 
  ## 3. The difference between a growth mindset and a fixed mindset
  ![image](https://irp-cdn.multiscreensite.com/069d5d93/dms3rep/multi/fixed.png)
  
