@@ -1,4 +1,4 @@
-# lab-02-growth-mindset
+# Reading note 
 # 1. what is growth mindset 
 In a growth mindset, people believe that their most basic abilities can be developed through dedication and hard work—brains and talent are just the starting point. This view creates a love of learning and a resilience that is essential for great accomplishment.
 This growth mindset is based on the belief that your basic qualities are things you can cultivate through your efforts. Although people may differ in every which way in their initial talents and aptitudes, interests, or temperaments, everyone can change and grow through application and experience.”
