@@ -16,7 +16,7 @@ ___________________________________________________
  * Portray criticism as positive
 
 
- ## 3. The difference between a growth mindset and a fixed mindset.
+## 3. The difference between a growth mindset and a fixed mindset.
  
  ![image](https://irp-cdn.multiscreensite.com/069d5d93/dms3rep/multi/fixed.png)
  
